@@ -1,1 +1,1 @@
-old meg magad github miert vagy ilyen hasznalhatatlan
+monkey d luffy
